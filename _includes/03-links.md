@@ -1,1 +1,1 @@
-[MappleBliss's GitHub Profile](http://github.com/mapplebliss)
+[MappleBliss GitHub Profile](http://github.com/mapplebliss)
